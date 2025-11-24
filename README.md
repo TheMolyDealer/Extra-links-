@@ -10,3 +10,5 @@ https://gitlab.com/TheMolyDealer
 https://open.spotify.com/user/ypk93b3zaibxxmie7ixv24um1?si=wrrO0AJ2QlKSjSLwvCLBoQ  
 
 https://straw.page/draw?bio=Gatewaytomainapge
+
+ https://iamafailure.straw.page
