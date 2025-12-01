@@ -12,3 +12,5 @@ https://open.spotify.com/user/ypk93b3zaibxxmie7ixv24um1?si=wrrO0AJ2QlKSjSLwvCLBo
 https://straw.page/draw?bio=Gatewaytomainapge
 
  https://iamafailure.straw.page
+
+https://sallythebean.atabook.org/
